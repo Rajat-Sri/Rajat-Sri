@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **r.srivastava1402@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/13SN37hiGHxxr40-ilhk-Li2UTTwNCMOr/view?usp=sharing](https://drive.google.com/file/d/13SN37hiGHxxr40-ilhk-Li2UTTwNCMOr/view?usp=sharing)
 
 - ⚡ Fun fact **Data analysis: where hidden patterns become meaningful stories.**
 
